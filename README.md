@@ -47,6 +47,6 @@ Most drainers break at the worst moment — big wallets, lots of tokens, slow co
 
 ### Contact Us 📞
 
-For more details, join our Telegram: [Click Here](https://t.me/f_factus)
+For more details, join our Telegram: [Click Here](https://t.me/noir_lead)
 
 ---
